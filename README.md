@@ -82,4 +82,4 @@ restart             – Restart the bot
 
 ---
 
-<p align="center"><b>Jai Shree Krishna 🙏😉</b></p>
+<p align="center"><b>TQ 4 ALL DEV'S WHO HELP US. SPECIAL THANKX TO TECHNOKRISH🙏</b></p>
